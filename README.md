@@ -9,5 +9,8 @@ Haa zvaramba. Rega tione
 
 Ndanga ndarasika
 
+Zvave kunakidza manje!
+
+
 
 
